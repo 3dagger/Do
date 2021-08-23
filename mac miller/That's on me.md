@@ -76,7 +76,7 @@ Don't, don't, don't, don't wait around
 
 We'll take the stairs that gets us into there
 
-우리는 그곳까지 계간으로 올라갈거야
+우리는 그곳까지 계단으로 올라갈거야
 
 It's unfair when I'm bein' too proud, but
 
